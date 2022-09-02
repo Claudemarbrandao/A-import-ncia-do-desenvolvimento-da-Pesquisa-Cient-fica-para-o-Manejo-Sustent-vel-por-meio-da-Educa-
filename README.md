@@ -1,0 +1,1 @@
+# A-import-ncia-do-desenvolvimento-da-Pesquisa-Cient-fica-para-o-Manejo-Sustent-vel-por-meio-da-Educa-
